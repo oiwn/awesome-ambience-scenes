@@ -27,3 +27,4 @@ curated list of channels to explore and enjoy this captivating new genre.
 * [Focus Soundscapes](https://www.youtube.com/@FocusSoundscapesMusic)
 * [Eternal Dystopia](https://www.youtube.com/@EternalDystopiaMusic)
 * [Relaxing Sleep & Deep Healing](https://www.youtube.com/@RelaxingSleepDeepHealing)
+* [OBSIDIAN SOUNDFIELDS](https://www.youtube.com/@OBSIDIANSOUNDFIELDS)
