@@ -13,10 +13,6 @@ curated list of channels to explore and enjoy this captivating new genre.
 
 
 + [Channels](#channels)
-+ [Star Wars](#star-wars)
-+ [Mass Effect](#mass-effect)
-+ [Doctor Who](#doctor-who)
-+ [Other](#other)
 
 ### Channels
 
